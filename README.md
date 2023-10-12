@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **denevi.irene@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1c-h3CtN7MFzFMNJIcET6sGfWcEoFg5Ek/view?usp=sharing](https://drive.google.com/file/d/1c-h3CtN7MFzFMNJIcET6sGfWcEoFg5Ek/view?usp=sharing)
-
 - ⚡ Fun fact **100% Italian**
 
 <h3 align="left">Connect with me:</h3>
